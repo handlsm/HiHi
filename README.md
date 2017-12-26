@@ -1,4 +1,3 @@
-# HiHi
 
 happy new year
 
